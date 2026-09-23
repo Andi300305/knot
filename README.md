@@ -50,7 +50,7 @@ software · linux · web · open source · keyboards · Loving things how they a
 
 
 
-I love Cooking more than cooking...
+I love Cooking more than coding...
 
 
 
